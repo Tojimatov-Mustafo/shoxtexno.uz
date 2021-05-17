@@ -1,0 +1,2 @@
+# shoxtexno.uz
+Kompyuter qismlari
